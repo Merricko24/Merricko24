@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Merricko24
+- 👀 I’m interested in computer science and artificial intelligence
+- 🌱 I’m currently learning computer science at CU Boulder
+- 💞️ I’m looking to collaborate on anything
+- 📫 How to reach me merrick.oleszek@colorado.edu
+- Contact me to work with me on anything!
